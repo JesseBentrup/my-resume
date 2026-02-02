@@ -2,7 +2,7 @@
 
 **High-Impact Leadership | Process Optimization | Mentorship-Driven Growth**
 
-I am a decisive and empathetic Operations Leader with over 20 years of experience transforming underperforming departments into high-efficiency engines. My career is defined by measurable revenue transformation—scaling an insurance agency to **$1.5M** and quadrupling a finance department's revenue to **$3M+**—and a commitment to the long-term development of people.
+I am a decisive and empathetic Operations Leader with over 20 years of experience transforming underperforming departments into high-efficiency engines. My career is defined by measurable revenue transformation—scaling an insurance agency to $1.5M and increasing a finance department's revenue by nearly 400% (from $800K to $3M+)—and a commitment to the long-term development of people.
 
 ## 🚀 Key Value Proposition
 * **The Multiplier Effect:** I specialize in identifying human bottlenecks and training staff into high-level managers. My "legacy" includes former direct reports who are now GMs and Sales Directors.
