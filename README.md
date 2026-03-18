@@ -14,4 +14,4 @@ I have built a digital summary of my leadership philosophy and career results he
 👉 **[https://jessebentrup.github.io/my-resume/](https://jessebentrup.github.io/my-resume/)**
 
 ---
-*“I lead by building 'bench strength' so the business thrives even when I’m not in the room. I am transition-ready for a stable, salaried leadership role where I can deliver consistent, scalable results.”*
+*“I lead by building 'bench strength' so the business thrives even when I’m not in the room. I am ready for a leadership role where I can deliver consistent, scalable results.”*
